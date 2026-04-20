@@ -1,4 +1,4 @@
-## Hi👋 I'm *Jahsfavour Johnmark* (PS: call me John)
+## Hi👋 I'm *Jahsfavour Johnmark*
 **Data Analyst | Data Scientist | Python Developer | Computer Science Major**
 
 ## 🚀 About Me
